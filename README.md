@@ -1,9 +1,3 @@
-# test
-# test
-# test
-# test
-# test
-# test
-# test
-# test
-# test
+# Mikko 
+# JA
+# JERIC
